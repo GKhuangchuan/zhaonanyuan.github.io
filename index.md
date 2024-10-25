@@ -3,5 +3,6 @@
 # 克隆人
 克隆人不是妖魔
 # 动保
+谁才是权利的主体[3]:https://headsalon.org/archives/3347.html
 # 论民主
 # 赵南元常用的逻辑辩论
