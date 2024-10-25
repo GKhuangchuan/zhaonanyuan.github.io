@@ -5,7 +5,7 @@
 克隆人不是妖魔。
 
 # 动保
-谁才是权利的主体？ [动保链接](https://headsalon.org/archives/3347.html)
+ [谁才是权利的主体？](https://headsalon.org/archives/3347.html)
 
 # 论民主
 
