@@ -6,7 +6,7 @@
 
 ## 克隆人
 
-[谈谈克隆猴的争议]
+[谈谈克隆猴的争议](https://github.com/GKhuangchuan/zhaonanyuan.github.io/blob/main/kelong/kelong01.html)
 
 ## 动物保护
 
